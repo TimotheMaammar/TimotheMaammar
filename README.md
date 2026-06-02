@@ -1,6 +1,6 @@
 Offensive cybersecurity professional with a 5-year background as a System Administrator in the French Army and 2 years of professional experience as a Pentester   
 
-🇵🇱 Moving to Poland soon and actively looking for cybersecurity opportunities 🇵🇱   
+Relocated to Poland and actively looking for cybersecurity opportunities
 
 ---
 
